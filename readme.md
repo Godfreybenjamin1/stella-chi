@@ -7,6 +7,7 @@
 - Health is better than wealth keep your house clean with
 care product ur look is what matters
 -Aim/goal
--Develop a passion for learningif you do you wwill never cease to grow
+-Develop a passion for learning if you do you will never cease to grow
 -Education
 -Our vision
+our vision
