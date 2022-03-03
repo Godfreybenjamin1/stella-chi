@@ -10,4 +10,3 @@ care product ur look is what matters
 -Develop a passion for learning if you do you will never cease to grow
 -Education
 -Our vision
-our vision
